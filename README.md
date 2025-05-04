@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science 
 - 🌱 I’m currently learning in chettinad vidyashram  
 - 💞️ I’m looking to collaborate on network chuck
-- 📫 How to reach me : at ananthikam6@gmail.com 
+- 📫 How to reach me : veeracoder01@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I was born in 2nd April 2012
 
